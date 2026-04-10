@@ -1,1 +1,1 @@
-# Random-Pracitce
+# Rand-Pracitce
